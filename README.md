@@ -31,6 +31,13 @@ So depraved, hideous and horrid!
 Lost in the Vatican story, unspeakable evil and its assault against the mothers, with minions  embracing, purposefully, blood money extortion with ritualized torture of Children, oh, of course that is what has become of PizzaGate.
 
 
+---
+
+2016-12-08
+
+What a day, joy with many, many tears, sobbing about my mother. One last check on the finist group of humanity, this side of WikiLeaks, where the PizzaGate action is a happening, over at https://voat.co/v/pizzagate/ a post about the Pope; first, obviously these, really not sure from here out, what to call them! I will not repeat his message as it is clearly a state of purtridity, a projection insidous treachery apon those faithful, holy spirit guided poeple.
+
+
 
 
 
