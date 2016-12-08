@@ -41,7 +41,7 @@ What a day, joy with many, many tears, sobbing about my mother. One last check o
 
 Thanksgiving of 1957 in Madison, Wisconsin.
 
-3 and a half, and it’s this big deal, my mom is so happy, my older brother bob to be home from school in Milwaukee, with Father Murphy and Mr. Blum honored guests, yeah, watch the movie. I remember this vividly, as i reached out my little hand, to his touch so slimy my hand flying back, my beloved mother grabbed me, smiled, and on to dinner; years after, my dad right into my eyes ‘i just didn’t see it, the Whole thing!’.
+3 and a half, and it’s this big deal, my mom is so happy, my older brother bob to be home from school in Milwaukee, with Father Murphy and Mr. Blum honored guests, yeah, watch the movie. I remember this vividly, as i reached out my little hand, to his touch so slimy my hand flew back before my mother grabbed me, with her gentle smile of kindness; years after, my dad into my eyes ‘i just didn’t see it, the Whole thing!’.
 
 
 
