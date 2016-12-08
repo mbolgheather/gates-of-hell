@@ -5,7 +5,7 @@ For Those Who Care
 2016-12-07 
 
 Vile Characters of Fake
-    m bolg heather
+   
 
 Homage to a Journalist
 
