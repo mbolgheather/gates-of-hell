@@ -16,7 +16,7 @@ Yesterday the Pope spoke about the sin of fake news; a few hours before, finishi
 
 Thank You Alex Gibney for being so kind to my brother, Bob
    
-   My Mother would have appreciated Greatly!
+my Mother would have appreciated Greatly!
 
 
 Could you please look at PizzaGate
