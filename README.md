@@ -37,6 +37,12 @@ Lost in the Vatican story, unspeakable evil and its assault against mothers! And
 
 What a day, joy with many, many tears, sobbing about my mother. One last check on the finest group of humanity, this side of WikiLeaks, where the PizzaGate action is a happening, over at https://voat.co/v/pizzagate/ a post about the Pope; first, obviously these, really not sure from here out, what to call them! I will not repeat his message as it is clearly a state of putridity, a projection of insidious treachery upon those faithful, holy spirit guided, caring and loving people's.
 
+---
+
+Thanksgiving of 1957 in Madison, Wisconsin.
+
+3 and a half, and it’s this big deal, my mom is so happy, my older brother bob to be home from school in Milwaukee, with Father Murphy and Mr. Blum honored guests, yeah, watch the movie. I remember this vividly, as i reached out my little hand, to his touch so slimy, with my hand flying back as if touching a burning - my mother grabbed me and smiled, everyone went to dinner, years after, my dad right into my eyes ‘i just didn’t see it, the Whole thing!’.
+
 
 
 
