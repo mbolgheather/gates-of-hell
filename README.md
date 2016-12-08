@@ -19,7 +19,7 @@ Thank You Alex Gibney for being so kind to my brother, Bob
 my Mother would have appreciated Greatly!
 
 
-Could you please look at PizzaGate
+could you please look at PizzaGate
 
 
 So depraved, hideous and horrid!
