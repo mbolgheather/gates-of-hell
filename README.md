@@ -40,6 +40,14 @@ Thanksgiving of 1957 in Madison, Wisconsin.
 3 and a half, and it’s this big deal, my mom is so happy, my older brother bob to be home from school in Milwaukee, with Father Murphy and Mr. Blum honored guests, yeah, watch the movie. I remember this vividly, as i reached out my little hand, to his touch so slimy my hand flew back before my mother grabbed me, with her gentle smile of kindness; years after, my dad into my eyes ‘i just didn’t see it, the Whole thing!’.
 
 
+---
+
+2016-12-09
+
+Urgency
+
+If you are grounded and open, all your senses together, this is Common Sense, Functional Primordial Wisdom; you grow this little seedling inside to blossom a divine metas; extraordinary, for those deep in sensation of our being. All around us is this Urgency, look without binding to it, important, stillness you go deep inside, listen, there is great power in this, you must use it free of self importance, free of evil and perversion of righteousness, only by organically growing what is already inside you, with true courage, it is easy, simple. Arrogance with petty self interest morphs into misery and famine. This is ancient, any set limitations with lists of rules always ends in ruin, look at everything, look at the bindings by group participation, labeling you into some hidden set theory, and when you really see it for what it is, it loses any power, surrounded by a perversion of a culture that is collapsing by its own volition. Urgency is you getting it together, living it authentically, tremendous power in this! And if you happen to some location, with distraught in the air, walk softly and gather goodness within.
+
 
 
 
