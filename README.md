@@ -51,11 +51,10 @@ If you are open, all your senses together, this is Common Sense; and a functiona
 
 ---
 
-Urgent Threat to Democracy - Fake Doors by Brocken Vow's
+Urgent Threat to Democracy - Fake Doors by Broken Vow's
 
 Hillary has spoken, at a tribute to Harry Reid; 'a sick man' as the the most popular person in all of Washington, Trey Gowdy, in a recent interview.
 
-<! just trying to keep up, the hits just keep coming -note this is a comment tag http://www.w3schools.com/tags/tag_comment.asp -eventualy will discuss Computer Science stuff->
 
 
 ---
