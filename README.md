@@ -66,6 +66,8 @@ Ritualized Torture
 
 On my way north to Ketchum, Sun Valley Idaho in the autumn of 1984, just past Hailey, were Ezra Pound was born; so beloved to those writers in Europe for his great generosity, Hemingway would save him from a lobotomy; St. Elizabeths hospital in Washington DC, a prison kept for these and other problems.
 
+This beautiful morning of 1989, after successfully completing my first professional caretaking job in the Rockies, at the Circle A, then to the M-bar-M, loved Idaho, just had to get back to California, a large house caretaking in Aptos-Santa Cruz, to here in Shasta County, California. The view of Mount Shasta is stunning, the way the land faces, have been informed, a special here to the Natives of the past, here once a recent place of bonfires of ritual. This was not an investigation, amidst a disintegrating moving elsewhere, very large methamphetamine cooking operation, spread out in remote locations, in what is called inter-mountain, northern sierra to southern cascade; my directive as follows, begin a process of purification, the land, dis-embodied soul-spirits stuck here, important: i am doing nothing, other than, being a divine presense, of course each encounter is different, please, you do not a have a dialog, just be the best you can be, stay out of the way!
+
 
 
 
