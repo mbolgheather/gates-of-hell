@@ -64,7 +64,7 @@ Volition of Depravity
 
 Ritualized Torture
 
-
+On my way north to Ketchum, Sun Valley Idaho in the autumn of 1984, just past Hailey, were Ezra Pound was born; so beloved to those writers in Europe for his great generosity, Hemingway would save him from a lobotomy; St. Elizabeths hospital in Washington DC, a prison kept for these and other problems.
 
 
 
