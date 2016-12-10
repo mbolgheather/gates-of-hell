@@ -53,7 +53,7 @@ If you are open, all your senses together, this is Common Sense; and a functiona
 
 Urgent Threat to Democracy - Fake Doors by Broken Vow's
  
-Hillary has spoken, at a tribute to Harry Reid; 'he's a sick man' recent interview, blurted out by the most popular person in all of Washington DC, Representative Trey Gowdy,!
+Hillary has spoken, at a tribute to Harry Reid; 'he's a sick man' recent interview, blurted out by the most popular person in all of Washington DC, Representative Trey Gowdy!
 
 
 ---
