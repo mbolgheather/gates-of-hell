@@ -70,7 +70,7 @@ This beautiful morning of 1989, after successfully completing my first professio
 
 And when that day a Father arrives from far away, years of tears and asks,  have you spoken to my child; It is the Divine that comforts him, as i can honestly say, with Honor, what purpose the directive. He in the distance walking away, you know something good has Happened!
 
-I would be remiss if i failed to mention years later, a friend asked me if i had heard about Cathy O'Brien and Lake Shasta, i had not. In 1994, while burning house's of evidence, the 64,000 acre fire called The Fountain Fire finished the job, i moved down to Chico-Paradise, close friends and Children, Thank You Kyle, Ashley, Nathan!
+I would be remiss if i failed to mention years later, a friend asked me if i had heard about Cathy O'Brien and Lake Shasta, i had not. In 1994, while burning house's of evidence, the 64,000 acre fire called The Fountain Fire; time to go, to Chico-Paradise and close friends, and the joy of children, Thank You.
 
 ---
 
