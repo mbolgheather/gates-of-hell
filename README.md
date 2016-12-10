@@ -53,8 +53,7 @@ If you are open, all your senses together, this is Common Sense; and a functiona
 
 Urgent Threat to Democracy - Fake Doors by Broken Vow's
 
-Hillary has spoken, at a tribute to Harry Reid; 'a sick man' as the the most popular person in all of Washington, Trey Gowdy, in a recent interview.
-
+Hillary has spoken, at a tribute to Harry Reid; 'a sick man' a recent interview with the most popular person in all of Washington DC, Representative Trey Gowdy!
 
 
 ---
