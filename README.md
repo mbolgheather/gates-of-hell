@@ -68,6 +68,13 @@ On my way north to Ketchum, Sun Valley Idaho in the autumn of 1984, just past Ha
 
 This beautiful morning of 1989, after successfully completing my first professional caretaking job in the Rockies, at the Circle A, then to the M-bar-M, loved Idaho, just had to get back to California, a large house caretaking in Aptos-Santa Cruz, to here in Shasta County, California. The view of Mount Shasta is stunning, the way the land faces, have been informed, a special here to the Natives of the past, here once a recent place of bonfires of ritual. This was not an investigation, amidst a disintegrating moving elsewhere, very large methamphetamine cooking operation, spread out in remote locations, in what is called inter-mountain, northern sierra to southern cascade; my directive as follows, begin a process of purification, the land, dis-embodied soul-spirits stuck here, important: i am doing nothing, other than, being a divine presense, of course each encounter is different, please, you do not a have a dialog, just be the best you can be, stay out of the way!
 
+And when that day a Father arrives from far away, years of tears and asks,  have you spoken to my child; It is the Divine that comforts him, as i can honestly say, with Honor, what purpose the directive. He in the distance walking away, you Know something good has Happened!
+
+
+
+
+
+
 
 
 
