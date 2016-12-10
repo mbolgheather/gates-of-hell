@@ -49,6 +49,19 @@ Urgency
 If you are open, all your senses together, this is Common Sense; and a functional primordial wisdom. You grow this little seedling inside to blossom a divine awareness, being; extraordinary, for those deep in sensation of our being. All around us is this urgency; look without binding to it, important, let the incessant chatter of fear disappear, in stillness you go deep inside, there is great power in this, if you use are free of self importance, free of evil and perversion of righteousness, only by organically growing what is already inside you, with true courage, it is easy, simple. Arrogance morphs into misery and famine. This is ancient, any concrete formation of belief starts crumbling away, look at everything, look at the bindings by group participation, labeling you into some hidden set theory, and when you really see it for what it is, it loses any power over you! Surrounded by a perversion of a culture, that is collapsing by its own volition! Urgency is you getting it together, living authentically a divine being, with tremendous power in this! And if you happen to some location, with distraught in the air, walk softly and gather goodness within.
 
 
+---
+
+Urgent Threat to Democracy - Fake Doors by Brocken Vow's
+
+Hillary has spoken, at a tribute to Harry Reid; 'a sick man' as the the most popular person in all of Washington, Trey Gowdy, in a recent interview.
+
+<! just trying to keep up, the hits just keep coming -note this is a comment tag http://www.w3schools.com/tags/tag_comment.asp -eventualy will discuss Computer Science stuff->
+
+
+---
+
+
+
 
 
 
