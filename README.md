@@ -1,7 +1,7 @@
 # gates-of-hell
 For Those Who Care
 
-----
+---
 2016-12-07 
 
 Vile Characters of Fake
