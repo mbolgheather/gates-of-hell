@@ -1,7 +1,8 @@
 # gates-of-hell
+
 For Those Who Care
 
----
+
 2016-12-07 
 
 Vile Characters of Fake
@@ -27,20 +28,20 @@ So depraved, hideous and horrid!
 
 Lost in the Vatican story, unspeakable evil and its assault against mothers! And their are these minions,  embracing, purposefully, blood money extortion with ritualized torture of Children, oh, of course that is what has become of PizzaGate.
 
----
+
 
 2016-12-08
 
 What a day, joy with many, many tears, sobbing about my mother. One last check on the finest group of humanity, this side of WikiLeaks, where the PizzaGate action is a happening, over at https://voat.co/v/pizzagate/ a post about the Pope; first, obviously these, really not sure from here out, what to call them! I will not repeat his message as it is clearly a state of putridity, a projection of insidious treachery upon those faithful, holy spirit guided, caring and loving people's.
 
----
+
 
 Thanksgiving of 1957 in Madison, Wisconsin.
 
 3 and a half, and it’s this big deal, my mom is so happy, my older brother bob to be home from school in Milwaukee, with Father Murphy and Mr. Blum honored guests, yeah, watch the movie. I remember this vividly, as i reached out my little hand, to his touch so slimy my hand flew back before my mother grabbed me, with her gentle smile of kindness; years after, my dad into my eyes ‘i just didn’t see it, the Whole thing!’.
 
 
----
+
 
 2016-12-09
 
@@ -49,14 +50,14 @@ Urgency
 If you are open, all your senses together, this is Common Sense; and a functional primordial wisdom. You grow this little seedling inside to blossom a divine awareness, being; extraordinary, deep in sensation. All around us is this urgency; look without binding to it, important, let the incessant chatter of fear disappear, in stillness you go deep inside, there is great power in this, if you use are free of self importance, free of evil and perversion of righteousness; organically growing what is already inside you, with true courage, it is easy, simple. Arrogance morphs into misery and famine. This is ancient, any concrete formation of belief starts crumbling away, look at everything, look at the bindings by group participation, labeling you into some hidden set theory, and when you really see it for what it is, it loses any power over you! Surrounded by a perversion of a culture, that is collapsing by its own volition! Urgency is you getting it together, living authentically a divine being, with tremendous power in this! And if you happen to some location, with distraught in the air, walk softly and gather goodness within.
 
 
----
 
-Urgent Threat to Democracy - Fake Doors by Broken Vow's
+
+Fake Doors by Broken Vow's
  
-Hillary has spoken, at a tribute to Harry Reid; 'he's a sick man' recent interview, blurted out by the most popular person in Washington DC, Representative Trey Gowdy!
+'Urgent Threat to Democracy' Hillary has spoken, at a tribute to Harry Reid; 'he's a sick man' recent interview, blurted out by the most popular person in Washington DC, Representative Trey Gowdy!
 
 
----
+
 
 2016-12-10
 
