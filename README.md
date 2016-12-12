@@ -61,7 +61,7 @@ If you are open, all your senses together, this is Common Sense; and a functiona
 
 ### Volition of Depravity - Ritualized Torture
 
-On my way north to Ketchum, Sun Valley Idaho in the autumn of 1984, just past Hailey, where Ezra Pound was born; so beloved to those writers in Europe for his great generosity, Hemingway would save him from a lobotomy; St. Elizabeths hospital in Washington DC, a prison kept for these and other problems.
+On my way north to Ketchum, Sun Valley Idaho in the autumn of 1984, just past Hailey, where Ezra Pound was born; so beloved to those writers in Europe for his great generosity, Hemingway would save him from a lobotomy; St. Elizabeth's hospital in Washington DC, a prison kept for these and other problems.
 
 This beautiful morning of 1989, after successfully completing my first professional caretaking job in the Rockies, at the Circle A, then to the M-bar-M, loved Idaho, just had to get back to California, a large house caretaking in Aptos-Santa Cruz, to here in Shasta County, California. The view of Mount Shasta is stunning, the way the land faces, have been informed, here a special place to the Natives of the past, here has been bonfires of ritual. This was not an investigation, amidst a disintegrating moving elsewhere, very large methamphetamine cooking operation, spread out in remote locations, in what is called inter-mountain, northern sierra to southern cascade; my directive as follows, begin a process of purification, the land, dis-embodied soul-spirits stuck here, important: i am doing nothing, other than, being a divine presence, of course each encounter is different, please, no dialog, just be the best you can be, stay out of the way!
 
@@ -76,7 +76,7 @@ I would be remiss if i failed to mention, later a friend asked me if i had heard
 
 ### We Love You - Drink This!
 
-Horrific things in the laboratory's, dripping into the food supply; really no surprise that John Podesta would be involved as an operative, lobbyist, looking like his handler might be George Soros, who also looks to be behind the New York Times, Washington Post's Russia story's, and where this puppet-master, reside!
+Horrific things in the laboratory's, dripping into the food supply; really no surprise that John Podesta would be involved as an operative, lobbyist. Looking like his handler might be George Soros, who also looks to be behind the New York Times, Washington Post's Russia story's, and where this puppet-master reside's!
 
 
 
