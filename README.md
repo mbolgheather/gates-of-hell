@@ -79,6 +79,10 @@ I would be remiss if i failed to mention, later a friend asked me if i had heard
 Horrific things in the laboratory's, dripping into the food supply; really no surprise that John Podesta would be involved as an operative, lobbyist. Looking like his handler might be George Soros, who also looks to be behind the New York Times, Washington Post's Russia story's, and where this puppet-master reside's!
 
 
+###Functional Side-Effects
+
+Speaking of Soros, if you venture to build an app, trusted and free of tunnels to hack through; hey, save on your costs, voting machine companies are not interested!
+
 
 
 
