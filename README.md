@@ -69,8 +69,14 @@ And when that day a Father arrives from far away, years of tears and asks,  have
 
 I would be remiss if i failed to mention, later a friend asked me if i had heard about Cathy O'Brien and Lake Shasta, i had not. In 1992, while burning house's of evidence, the 64,000 acre fire called The Fountain Fire.
 
----
 
+
+
+2016-12-12
+
+### We Love You - Drink This!
+
+Horrific things in the laboratory's, dripping into the food supply; really no surprise that John Podesta would be involved as an operative, lobbyist, looking like his handler might be George Soros, who also looks to be behind the New York Times, Washington Post's Russia story's, and where this puppet-master, reside!
 
 
 
