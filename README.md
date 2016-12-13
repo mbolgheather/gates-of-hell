@@ -82,7 +82,7 @@ Horrific things in the laboratory's, dripping into the food supply; really no su
 
 ### Functional Side-Effects
 
-Speaking of Soros, if you venture to build an app, trusted and free of tunnels to hack through; hey, save on your costs, voting machines are not interested in that!
+Speaking of Soros, if you venture to build an app, trusted and free of tunnels to hack through; voting machine company's are not interested in that!
 
 
 2016-12-13
