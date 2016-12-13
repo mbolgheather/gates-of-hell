@@ -85,6 +85,11 @@ Horrific things in the laboratory's, dripping into the food supply; really no su
 Speaking of Soros, if you venture to build an app, trusted and free of tunnels to hack through; hey, save on your costs, voting machines are not interested in that!
 
 
+2016-12-13
+
+### Hearings Sound of Collapse
+
+'Inquiry of Russian Hacking in Election.. potential confrontation.. Trump in his first days in office' New York Times, maybe a break, there insipid smearing of PizzaGate, or crumbling away, the sound is so quiet, with The Washington Post, plenty of hearings.
 
 
 
