@@ -92,6 +92,11 @@ Speaking of Soros, if you venture to build an app, trusted and free of tunnels t
 'Inquiry of Russian Hacking in Election.. potential confrontation.. Trump in his first days in office' New York Times, maybe a break, there insipid smearing of PizzaGate, or crumbling away, the sound is so quiet, with The Washington Post, plenty of hearings.
 
 
+2016-12-14
+
+### Wretched Run Press Club
+
+It is as simple as this, Jeff Bezos and Mark Thompson, why o why protect these pediphile networks!
 
 
 
