@@ -99,6 +99,9 @@ Speaking of Soros, if you venture to build an app, trusted and free of tunnels t
 It is as simple as this, Jeff Bezos and Mark Thompson, why o why protect these pediphile networks!
 
 
+2016-12-15
+
+### They Know
 
 
 
