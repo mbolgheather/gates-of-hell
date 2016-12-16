@@ -103,7 +103,18 @@ It is as simple as this, Jeff Bezos and Mark Thompson, why o why protect these p
 
 ### They Know
 
-Strange how many locals here do not care, and language where a word is spoken a sound untrue, be-less you, re-tire-ment, very mis-con-screwed; a morbidity of corruption. 
+Strange how many locals here do not care, and language where a word is spoken a sound untrue, be-less you, re-tire-ment, very mis-con-strue[skrewd]; a morbidity of corruption. 
+
+
+
+
+
+
+
+
+
+
+2016-12-16
 
 
 
