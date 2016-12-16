@@ -106,6 +106,14 @@ It is as simple as this, Jeff Bezos and Mark Thompson, why o why protect these p
 Strange how many locals here do not care, and language where a word is spoken a sound untrue, be-less you, re-tire-ment, very mis-con-strue[skrewd]; a morbidity of corruption. 
 
 
+### Defining Abhorrent
+
+Megyn Kelly interviews James Alefantis!
+
+
+
+
+
 
 
 
