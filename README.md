@@ -117,7 +117,7 @@ Megyn Kelly interviews James Alefantis!
 
 First move up this dirt road, so well known that after the Fountain Fire of 1992, FEMA would not go up this road till their request for armed escort was granted, i do not know why; the area had a serious reputation established, so it was cool that i was a Professional Caretaker, hired to watch in a new house, and 5 acres, they sensed no threat from me, that first contact look. 3 months later is what was called at the time the Ramsey Murder, with a body placed in a shallow grave up this dirt road; the gang headed out else where, some leaving behind children and their mothers. Gone, went down to Shasta College, this side of Redding, Fine Painter i asked to participate following Autumn semester in a crowded gallery Hallway with abundance of students, Detectives slammed the Sculpture Certified Faculty, obviously going out of their way, so heinous these crimes against children!
 
-Meeting very cool college people; You live up that road! Of course everything was now different, and would give my charming smile of it does have its benifits, that criminals appeared to never go up that way!
+Meeting very cool college people; You live up that road! Of course everything was now different, and would give a friendly smile it does have its benifits, that criminals appeared to never go up that way!
 
 
 -
