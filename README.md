@@ -89,7 +89,7 @@ Speaking of Soros, if you venture to build an app, trusted and free of tunnels t
 
 ### Hearings Sound of Collapse
 
-'Inquiry of Russian Hacking in Election.. potential confrontation.. Trump in his first days in office' New York Times, maybe a break, there insipid smearing of PizzaGate, or crumbling away, the sound is so quiet, with The Washington Post, plenty of hearings.
+'Inquiry of Russian Hacking in Election.. potential confrontation.. Trump in his first days in office' New York Times, maybe a break, their insipid smearing of PizzaGate, or crumbling away, the sound is so quiet, with The Washington Post, plenty of hearings.
 
 
 2016-12-14
