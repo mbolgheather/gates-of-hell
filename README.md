@@ -120,13 +120,6 @@ First move up this dirt road, so well known that after the Fountain Fire of 1992
 Meeting very cool college people; You live up that road! Of course everything was now different, a friendly smile it does have its benefits, criminals appeared to never go up that way!
 
 
--
--
--
--
--
--
--
 
 
 
