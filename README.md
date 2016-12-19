@@ -113,11 +113,16 @@ Megyn Kelly interviews James Alefantis!
 
 2016-12-16
 
-### Up an Infamous Dirt Road      
+### Infamous Dirt Road      
 
 First move up this dirt road, so well known that after the Fountain Fire of 1992, FEMA would not go up this road till their request for armed escort was granted, i do not know why; the area had a serious reputation established, so it was cool that i was a Professional Caretaker, hired to watch in a new house, and 5 acres, they sensed no threat from me, that first contact look. Three months later is what was called at the time the Ramsey Murder, with a body placed in a shallow grave, it all happened up this road; and one in jail, the gang headed out else where; Gone, i'm down to Shasta College, this side of Redding, Fine Painter i asked to participate, following Autumn semester in a crowded gallery hallway with an abundance of students, Detectives slammed the Sculpture Certified Faculty person, obviously going out of their way, so heinous these crimes against children!
 
 Meeting very cool college people; You live up that road! Of course everything was now different, a friendly smile it does have its benefits, criminals appeared to never go up that way!
+
+
+2016-12-19
+
+### Programming Lesser Minds Lesser Magic
 
 
 
