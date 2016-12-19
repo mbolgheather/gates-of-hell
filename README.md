@@ -124,7 +124,7 @@ Meeting very cool college people; You live up that road! Of course everything wa
 
 ### Programming Lesser Minds Lesser Magic
 
-Mainstream Media(MSM), as i recall a friend of Sigmond Freud wrote, discribing a projected magic lantern propaganda demonstration, nightime in a crowded plaza in Italy that left Freud stunned, horrified; so very strange, his nephew Bernays rose corrupting his Uncle's work, inflicting mass program's of propaganda. 
+Mainstream Media(MSM), as i recall a friend of Sigmond Freud wrote, discribing a projected magic lantern propaganda demonstration, nightime in a crowded plaza in Italy that left Freud stunned, horrified; so very strange, his nephew Bernays rose inflicting mass program's of propaganda. 
 
 
 
