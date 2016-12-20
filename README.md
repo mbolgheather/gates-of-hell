@@ -127,6 +127,9 @@ Meeting very cool college people; You live up that road! Of course everything wa
 Mainstream Media(MSM), as i recall a friend of Sigmund Freud wrote, describing a projected magic lantern propaganda demonstration, nighttime in a crowded plaza in Italy that left Freud stunned, horrified; so very strange, his nephew Bernays rose inflicting mass program's of propaganda. 
 
 
+### How Is This Possible
+
+Hundred foot Fir tree's snap in half, January 2010 Mount Shasta City Park; wet snow in the stories, quick freeze outer shell, waves of following wet snow, sticking, stuck refusing to let go, and like an large avalance, tis the sound so intensly alarming!
 
 
 
