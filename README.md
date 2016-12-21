@@ -142,7 +142,7 @@ Onslaught, those Crownings of lies.
 2016-12-21
 
 
-### A Maze On
+### A maze on
 
 Just past the garbage bins of cardboard, reams fabrics of pattern with futures and promises, asymmetrically abstracting single threaded away, modeled from catalogs of marketing, and clouds of logic gates heralding, a recursion of toxicity, its core.
 
