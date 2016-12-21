@@ -132,6 +132,12 @@ Mainstream Media(MSM), as i recall a friend of Sigmund Freud wrote, describing a
 Hundred foot Fir tree's snap in half, January 2010 Mount Shasta City Park; wet snow in the stories, quick freeze outer shell, waves of following wet snow, sticking, stuck refusing to let go, and like an large avalanche, the sound so intensely alarming!
 
 
+2016-12-20
+
+### Shillings for Shilling
+
+An onslaught, those Crownings of lies.
+
 
 
 
