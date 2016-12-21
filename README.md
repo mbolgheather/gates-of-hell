@@ -136,7 +136,7 @@ Hundred foot Fir tree's snap in half, January 2010 Mount Shasta City Park; wet s
 
 ### Shillings of Shilling
 
-An onslaught, those Crownings of lies.
+Onslaught, those Crownings of lies.
 
 
 
