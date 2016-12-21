@@ -139,6 +139,13 @@ Hundred foot Fir tree's snap in half, January 2010 Mount Shasta City Park; wet s
 Onslaught, those Crownings of lies.
 
 
+2016-12-21
+
+
+### A Maze On
+
+Just past the garbage bins of cardboard, reams fabrics of pattern with futures and promises, asymmetrically abstracting single threaded away, modeled from catalogs of marketing, and clouds of logic gates heralding, a recursion of toxicity, its core.
+
 
 
 
