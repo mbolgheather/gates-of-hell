@@ -147,6 +147,11 @@ Onslaught, those Crownings of lies.
 Just past the garbage bins of cardboard, reams fabrics of pattern with futures and promises, asymmetrically abstracting single threaded away, modeled from catalogs of marketing, and clouds of logic gates heralding, a recursion of toxicity, its core.
 
 
+### Vivisection Dissection Augmented Depravity
+
+Marvels of technology, transcends the traditional Operational Theatre, so well attended by our members, hail these Surgeons of Precision, hail these Captains of SiliCon, blown out Servitude, nothing left inside, fill the space with representations of a Ritual childhood, Periscope and React too Predictive programing Looped, inside  Face, Book a Pit for Remains.
+
+
 
 
 
