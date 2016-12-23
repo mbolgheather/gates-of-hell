@@ -156,7 +156,7 @@ Marvels of technology, transcends the traditional Operational Theatre, so well a
 
 ### Centuries of Lobotomy
 
-Tremendous vulnerability in Nietzsche, fair to ask was he given a lobotomy; Jung
+Tremendous vulnerability in Nietzsche, fair to ask, no mental breakdown, was he given a lobotomy; Jung
 would have known, and of course Lou Andreas-Salome! And after a visit, what was Rudolf Steiner telling to all of Frederick's friends!
 
 
