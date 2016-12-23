@@ -152,6 +152,14 @@ Just past the garbage bins of cardboard, reams fabrics of pattern with futures a
 Marvels of technology, transcends the traditional Operational Theatre, so well attended by our members, hail these Surgeons of Precision, hail these Captains of SiliCon, blown out Servitude, nothing left inside, fill the space with representations of a Ritual childhood, Periscope and React too Predictive programing Looped, inside  Face, Book a Pit for Remains.
 
 
+2016-12-22
+
+### Centuries of Lobotomy
+
+Tremendous vulnerability in Nietzsche, fair to ask was he given a lobotomy; Jung
+would have known, and of course Lou Andreas-Salome! And after a visit, what was Rudolf Steiner telling to all of Frederick's friends!
+
+
 
 
 
