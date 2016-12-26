@@ -164,7 +164,7 @@ would have known, and of course Lou Andreas-Salome! And after a visit, what was 
 
 ### Mad Cow and Cannibalism 
 
-Torturing, killing animals, and making concoctions of murdered animals to feed the herd; these Prions, cells conformation fold aberrant kills, flourish in a body consuming dead flesh!
+Torturing, killing animals, and making concoctions of murdered animals to feed the herd; these Prions, cells conformation fold aberrant kills, flourish in a body consuming flesh!
 
 
 
